@@ -1,0 +1,1 @@
+# kuru05.github.io
